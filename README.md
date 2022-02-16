@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yann-leschevin
-- 👀 I’m interested in Informatique
+- 👀 I’m interested in Informatique :-)
 - 🌱 I’m currently learning all
 - 💞️ I’m looking to collaborate on mars conquest
 - 📫 How to reach me ...
